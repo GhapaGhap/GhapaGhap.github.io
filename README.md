@@ -6,8 +6,8 @@ We hope you find a good match soon and we will train you for your first **Ghapa 
 ## Format of Adding Data
 
 First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute in this README.md file you have to add data in this format
--------------------------------------------------------------------
 
+-------------------------------------------------------------------
 Website Name | Website URL | Website Summary | Porn Addicts Rating |
 -------------|-------------|-----------------|---------------------|
 | PornHub      | https://www.pornhub.com/ | [pornhub](./porn_websites/pornhub) |
