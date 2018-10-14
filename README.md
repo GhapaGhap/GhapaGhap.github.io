@@ -10,10 +10,11 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 -------------------------------------------------------------------
 Website Name | Website URL | Website Summary | Porn Addicts Rating |
 -------------|-------------|-----------------|---------------------|
-| PornHub      | https://www.pornhub.com/ | [pornhub](./porn_websites/pornhub) |
+| PornHub      | https://www.pornhub.com/ | [pornhub](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/pornhub.md) |
 
-| Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](./porn_websites/pornky) |
+| Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/pornky) |
 
+<<<<<<< HEAD
 | Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](./porn_websites/porndig) |
 
 
@@ -29,3 +30,6 @@ Website Name | Website URL | Website Summary | Porn Addicts Rating |
 
 
 
+=======
+| Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/porndig) |
+>>>>>>> f76c44809d0c110feec845e8bd1fcf217bd80573
