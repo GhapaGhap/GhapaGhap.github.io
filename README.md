@@ -15,3 +15,17 @@ Website Name | Website URL | Website Summary | Porn Addicts Rating |
 | Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](./porn_websites/pornky) |
 
 | Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](./porn_websites/porndig) |
+
+
+| Beeg      | https://www.beeg.com/ | [Beeg](./porn_websites/beeg) |
+
+| xhamster      | https://xhamster.com/ | [For short and variety of porns](./porn_websites/xhamster) |
+
+| xnxx      | https://xnxx.com/ | [For short and variety of porns](./porn_websites/xnxx) |
+
+| YouPorn     | https://www.youporn.com/ | [YOUPORN](./porn_websites/youporn) |
+
+| RedTube      | https://www.redtube.com/ | [RedTube](./porn_websites/redtube) |
+
+
+
