@@ -10,4 +10,4 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 -------------------------------------------------------------------
 Website Name | Website URL | Website Summary | Porn Addicts Rating |
 -------------|-------------|-----------------|---------------------|
-| PornHub      | https://www.pornhub.com/ | [pornhub](./porn_websites/pornhub) |
+| PornHub      | https://www.pornhub.com/ | [pornhub](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/pornhub.md) |
