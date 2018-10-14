@@ -11,3 +11,7 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 Website Name | Website URL | Website Summary | Porn Addicts Rating |
 -------------|-------------|-----------------|---------------------|
 | PornHub      | https://www.pornhub.com/ | [pornhub](./porn_websites/pornhub) |
+
+| Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](./porn_websites/pornky) |
+
+| Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](./porn_websites/porndig) |
