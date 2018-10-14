@@ -24,12 +24,10 @@ Website Name | Website URL | Website Summary | Porn Addicts Rating |
 
 | xnxx      | https://xnxx.com/ | [For short and variety of porns](./porn_websites/xnxx) |
 
-| YouPorn     | https://www.youporn.com/ | [YOUPORN](./porn_websites/youporn) |
+| YouPorn     | https://www.youporn.com/ | [YouPorn](./porn_websites/youporn) |
 
 | RedTube      | https://www.redtube.com/ | [RedTube](./porn_websites/redtube) |
 
 
 
-=======
-| Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/porndig) |
->>>>>>> f76c44809d0c110feec845e8bd1fcf217bd80573
+
