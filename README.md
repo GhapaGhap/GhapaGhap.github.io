@@ -3,7 +3,8 @@ Our motive is to provide you **Ghapa Ghap** as soon as possible.
 We are like open source Tinder and we provide you the best porn websites sources with thier rating by the best porn adicts in the industry.
 We hope you find a good match soon and we will train you for your first **Ghapa Ghap**
 
-### for how to contribute read ./CONTRIBUTING.md
+### Create your own new branch and open a pull request
+For basics of contribution read ./CONTRIBUTING.md
 
 ## Format of Adding Data
 
