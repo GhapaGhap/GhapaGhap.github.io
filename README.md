@@ -24,7 +24,7 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 | Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
 | YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
 | 8teenxxx  | http://www.8teenxxx.com/ | [8teenxxx](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites8teenxxx.md) |
-| alotporn  | http://www.alotporn.com// | [alotporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/alotporn.md) |
+| alotporn  | http://www.alotporn.com/ | [alotporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/alotporn.md) |
 | bustnow  | http://www.bustnow.com/ | [bustnow](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/bustnow.md) |
 | cliphunter  | http://www.cliphunter.com/ | [cliphunter](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/cliphunter.md) |
 | definebabes  | http://www.definebabes.com/ | [definebabes](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/definebabes.md) |
