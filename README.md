@@ -36,3 +36,4 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 | freeporn  | http://www.freeporn.com/ | [freeporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freeporn.md) |
 | freudbox  | http://www.freudbox.com/ | [freudbox](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freudbox.md) |
 | fuq  | http://www.fuq.com/ | [fuq](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fuq.md) |
+| hegreArt  | http://www.hegre.com/?locale=en | [hegreArt](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hegre.md) |
