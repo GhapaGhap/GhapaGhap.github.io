@@ -21,6 +21,8 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 | xnxx      | https://xnxx.com/ | [For short and variety of porns](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/xnxx.md) |
 | YouPorn     | https://www.youporn.com/ | [YouPorn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youporn.md) |
 | RedTube      | https://www.redtube.com/ | [RedTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/redtube.md) |
+| YouPorn     | https://www.youporn.com/ | [YouPorn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youporn.md) |
+| RedTube      | https://www.redtube.com/ | [RedTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/redtube.md) |
 | Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
 | YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
 | 8teenxxx  | http://www.8teenxxx.com/ | [8teenxxx](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites8teenxxx.md) |
