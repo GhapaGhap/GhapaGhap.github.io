@@ -8,7 +8,8 @@ For basics of contribution read ./CONTRIBUTING.md
 
 ## Format of Adding Data
 
-First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute in this README.md file you have to add data in this format
+First of all, Thanks for contributing for **Ghapa Ghap** we our the best porn providers as per Hawas kae Pujari Group, the world largest tharki's are part of Hawas kae Pujari Group.
+In order to contribute in this README.md file you have to add data in this format
 
 -------------------------------------------------------------------
  Website Name | Website URL | Website Summary | Porn Addicts Rating |
