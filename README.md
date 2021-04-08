@@ -17,7 +17,6 @@ In order to contribute in this README.md file you have to add data in this forma
 | PornHub      | https://www.pornhub.com/ | [pornhub](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/pornhub.md) |
 | Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/pornky.md) |
 | Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/pornky.md) |
-
 | Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/porndig.md) |
 | Beeg      | https://www.beeg.com/ | [Beeg](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/beeg.md) |
 | xhamster      | https://xhamster.com/ | [For short and variety of porns](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/xhamster.md) |
@@ -29,7 +28,6 @@ In order to contribute in this README.md file you have to add data in this forma
 | Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
 | YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
 | YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
-
 | 8teenxxx  | http://www.8teenxxx.com/ | [8teenxxx](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites8teenxxx.md) |
 | alotporn  | http://www.alotporn.com/ | [alotporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/alotporn.md) |
 | bustnow  | http://www.bustnow.com/ | [bustnow](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/bustnow.md) |
@@ -46,6 +44,8 @@ In order to contribute in this README.md file you have to add data in this forma
 | freudbox  | http://www.freudbox.com/ | [freudbox](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freudbox.md) |
 | fuq  | http://www.fuq.com/ | [fuq](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fuq.md) |
 | hegreArt  | http://www.hegre.com/?locale=en | [hegreArt](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hegre.md) |
+| PornHub      | https://www.pornhub.com/ | [pornhub](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/pornhub.md) |
+| Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
 | GhapaGhap  | http://www.ghapaghap.github.io | [GhapaGhap](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/ghapaghap.md) |
 | pornktube | www.pornktube.com | [Pornktube](www.pornktube.com) | 
 | hclips  | https://hclips.com/ | [hclips](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hclips.md) |
