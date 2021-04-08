@@ -16,14 +16,20 @@ In order to contribute in this README.md file you have to add data in this forma
 -------------|-------------|-----------------|---------------------|
 | PornHub      | https://www.pornhub.com/ | [pornhub](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/pornhub.md) |
 | Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/pornky.md) |
+| Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/pornky.md) |
+
 | Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/porndig.md) |
 | Beeg      | https://www.beeg.com/ | [Beeg](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/beeg.md) |
 | xhamster      | https://xhamster.com/ | [For short and variety of porns](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/xhamster.md) |
 | xnxx      | https://xnxx.com/ | [For short and variety of porns](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/xnxx.md) |
 | YouPorn     | https://www.youporn.com/ | [YouPorn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youporn.md) |
 | RedTube      | https://www.redtube.com/ | [RedTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/redtube.md) |
+| YouPorn     | https://www.youporn.com/ | [YouPorn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youporn.md) |
+| RedTube      | https://www.redtube.com/ | [RedTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/redtube.md) |
 | Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
 | YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
+| YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
+
 | 8teenxxx  | http://www.8teenxxx.com/ | [8teenxxx](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites8teenxxx.md) |
 | alotporn  | http://www.alotporn.com/ | [alotporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/alotporn.md) |
 | bustnow  | http://www.bustnow.com/ | [bustnow](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/bustnow.md) |
@@ -32,11 +38,12 @@ In order to contribute in this README.md file you have to add data in this forma
 | deviantclip  | http://www.deviantclip.com/ | [deviantclip](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/deviantclip.md) |
 | drtuber  | http://www.drtuber.com/ | [drtuber](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/drtuber.md) |
 | empflix  | http://www.empflix.com/ | [empflix](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/empflix.md) |
+| drtuber  | http://www.drtuber.com/ | [drtuber](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/drtuber.md) |
+| empflix  | http://www.empflix.com/ | [empflix](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/empflix.md) |
 | fantasti  | http://www.fantasti.cc/ | [fantasti](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fantasti.md) |
 | fapdu  | http://www.fapdu.com/ | [fapdu](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fapdu.md) |
 | freeporn  | http://www.freeporn.com/ | [freeporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freeporn.md) |
 | freudbox  | http://www.freudbox.com/ | [freudbox](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freudbox.md) |
 | fuq  | http://www.fuq.com/ | [fuq](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fuq.md) |
 | hegreArt  | http://www.hegre.com/?locale=en | [hegreArt](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hegre.md) |
-| GhapaGhap  | http://www.ghapaghap.github.io | [GhapaGhap](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/ghapaghap.md) |
 | hclips  | https://hclips.com/ | [hclips](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hclips.md) |
