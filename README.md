@@ -32,6 +32,8 @@ In order to contribute in this README.md file you have to add data in this forma
 | deviantclip  | http://www.deviantclip.com/ | [deviantclip](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/deviantclip.md) |
 | drtuber  | http://www.drtuber.com/ | [drtuber](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/drtuber.md) |
 | empflix  | http://www.empflix.com/ | [empflix](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/empflix.md) |
+| drtuber  | http://www.drtuber.com/ | [drtuber](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/drtuber.md) |
+| empflix  | http://www.empflix.com/ | [empflix](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/empflix.md) |
 | fantasti  | http://www.fantasti.cc/ | [fantasti](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fantasti.md) |
 | fapdu  | http://www.fapdu.com/ | [fapdu](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fapdu.md) |
 | freeporn  | http://www.freeporn.com/ | [freeporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freeporn.md) |
