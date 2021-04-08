@@ -24,6 +24,8 @@ In order to contribute in this README.md file you have to add data in this forma
 | RedTube      | https://www.redtube.com/ | [RedTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/redtube.md) |
 | Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
 | YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
+| YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
+
 | 8teenxxx  | http://www.8teenxxx.com/ | [8teenxxx](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites8teenxxx.md) |
 | alotporn  | http://www.alotporn.com/ | [alotporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/alotporn.md) |
 | bustnow  | http://www.bustnow.com/ | [bustnow](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/bustnow.md) |
@@ -40,5 +42,3 @@ In order to contribute in this README.md file you have to add data in this forma
 | freudbox  | http://www.freudbox.com/ | [freudbox](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freudbox.md) |
 | fuq  | http://www.fuq.com/ | [fuq](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fuq.md) |
 | hegreArt  | http://www.hegre.com/?locale=en | [hegreArt](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hegre.md) |
-| empflix  | http://www.empflix.com/ | [empflix](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/empflix.md) |
-| GhapaGhap  | http://www.ghapaghap.github.io | [GhapaGhap](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/ghapaghap.md) |
