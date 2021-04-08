@@ -46,3 +46,4 @@ In order to contribute in this README.md file you have to add data in this forma
 | freudbox  | http://www.freudbox.com/ | [freudbox](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/freudbox.md) |
 | fuq  | http://www.fuq.com/ | [fuq](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fuq.md) |
 | hegreArt  | http://www.hegre.com/?locale=en | [hegreArt](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hegre.md) |
+| hclips  | https://hclips.com/ | [hclips](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hclips.md) |
