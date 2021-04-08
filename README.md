@@ -8,12 +8,14 @@ For basics of contribution read ./CONTRIBUTING.md
 
 ## Format of Adding Data
 
-First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute in this README.md file you have to add data in this format
+First of all, Thanks for contributing for **Ghapa Ghap** we our the best porn providers as per Hawas kae Pujari Group, the world largest tharki's are part of Hawas kae Pujari Group.
+In order to contribute in this README.md file you have to add data in this format
 
 -------------------------------------------------------------------
  Website Name | Website URL | Website Summary | Porn Addicts Rating |
 -------------|-------------|-----------------|---------------------|
 | PornHub      | https://www.pornhub.com/ | [pornhub](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/pornhub.md) |
+| Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/pornky.md) |
 | Pornky      | https://www.pornky.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/pornky.md) |
 | Porndig      | https://www.porndig.com/ | [easy downloading & streaming in Full HD](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/porndig.md) |
 | Beeg      | https://www.beeg.com/ | [Beeg](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/beeg.md) |
@@ -21,7 +23,10 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 | xnxx      | https://xnxx.com/ | [For short and variety of porns](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/xnxx.md) |
 | YouPorn     | https://www.youporn.com/ | [YouPorn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youporn.md) |
 | RedTube      | https://www.redtube.com/ | [RedTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/redtube.md) |
+| YouPorn     | https://www.youporn.com/ | [YouPorn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youporn.md) |
+| RedTube      | https://www.redtube.com/ | [RedTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/redtube.md) |
 | Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
+| YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
 | YouFreePornTube  | https://www.youfreeporntube.net/ | [YouFreePornTube](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/youfreeporntube.md) |
 | 8teenxxx  | http://www.8teenxxx.com/ | [8teenxxx](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites8teenxxx.md) |
 | alotporn  | http://www.alotporn.com/ | [alotporn](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/alotporn.md) |
@@ -29,6 +34,8 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 | cliphunter  | http://www.cliphunter.com/ | [cliphunter](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/cliphunter.md) |
 | definebabes  | http://www.definebabes.com/ | [definebabes](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/definebabes.md) |
 | deviantclip  | http://www.deviantclip.com/ | [deviantclip](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/deviantclip.md) |
+| drtuber  | http://www.drtuber.com/ | [drtuber](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/drtuber.md) |
+| empflix  | http://www.empflix.com/ | [empflix](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/empflix.md) |
 | drtuber  | http://www.drtuber.com/ | [drtuber](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/drtuber.md) |
 | empflix  | http://www.empflix.com/ | [empflix](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/empflix.md) |
 | fantasti  | http://www.fantasti.cc/ | [fantasti](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/fantasti.md) |
@@ -39,3 +46,6 @@ First of all, Thanks for contributing for **Ghapa Ghap** In order to contribute 
 | hegreArt  | http://www.hegre.com/?locale=en | [hegreArt](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hegre.md) |
 | PornHub      | https://www.pornhub.com/ | [pornhub](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/pornhub.md) |
 | Brazzers      | https://www.brazzers.com/ | [World Leading Premium Adult Brand](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/brazzers.md) |
+| GhapaGhap  | http://www.ghapaghap.github.io | [GhapaGhap](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/ghapaghap.md) |
+| pornktube | www.pornktube.com | [Pornktube](www.pornktube.com) | 
+| hclips  | https://hclips.com/ | [hclips](https://github.com/GhapaGhap/GhapaGhap.github.io/blob/master/porn_websites/porn_websites/hclips.md) |
